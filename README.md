@@ -57,7 +57,12 @@
 
 ---
 
-> “Willing to finish work even though I’m tired, and one can get to see a good sense of humor if I’m frank with them.”
+> I'm dedicated to finishing any task, no matter how tired I am! And if you get to know me, you'll discover my great sense of humor.
+
+---
+
+_Thanks for visiting my profile! Feel free to reach out if you have an exciting opportunity or just want to connect._
+
 
 ---
 
